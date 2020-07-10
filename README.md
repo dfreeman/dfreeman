@@ -1,4 +1,4 @@
-### Hi there 👋
+Oops. Now I'm kind of obligated to put something here, aren't I?
 
 <!--
 **dfreeman/dfreeman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
